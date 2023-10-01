@@ -6,7 +6,7 @@ It's nice to educate yourself a bit regarding [**`Telecommunications`**](https:/
 
 Then, WTF is this [**shit**](https://en.wikipedia.org/wiki/List_of_telephone_operating_companies) made via ignorants global terrorsists ???? 
 
-Supposed green model: **`ONE telecomunication organization per country`**
+Supposed green 🌍 ✅ 💯 model: **`ONE telecomunication organization per country`**
 
 ***
 ***
