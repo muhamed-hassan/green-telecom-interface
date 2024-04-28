@@ -9,8 +9,6 @@ Then, WTF is this [**shit 💩**](https://en.wikipedia.org/wiki/List_of_telephon
 Supposed green 🌍 ✅ 💯 model: **`ONE telecomunication organization per country`**
 
 ***
-***
 
-To speed up processing your service a bit, you have to register your data first AKA the minimal ones to get the job done before being able to request the telecom services based on your user-type as below.
+![wp8345415-resident-evil-vendetta-wallpapers](https://github.com/muhamed-hassan/green-telecom-interface/assets/17825804/7dd2a545-97d7-430f-8414-d3992ea9e1df)
 
-![Use Case Diagrams - green-telecom-interface](https://github.com/muhamed-hassan/green-telecom-interface/assets/17825804/53c27e0b-2cc0-4720-b7e0-79e63a216b1a)
