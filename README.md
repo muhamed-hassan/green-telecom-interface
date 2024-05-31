@@ -2,6 +2,8 @@
 
 ***
 
+![giphy](https://github.com/muhamed-hassan/green-telecom-interface/assets/17825804/73deddbe-1322-4e65-ad29-ed4b9504550f)
+
 It's nice to educate yourself a bit regarding [**`Telecommunications`**](https://en.wikipedia.org/wiki/Telecommunications).
 
 Then, WTF is this [**shit 💩**](https://en.wikipedia.org/wiki/List_of_telephone_operating_companies) made via ignorants global terrorsists ???? 
