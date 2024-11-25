@@ -2,6 +2,10 @@
 
 ***
 
+[Till judgement day, you will be crushed even your descendants](https://www.youtube.com/watch?v=DYoYQdXqXgo)
+
+***
+
 ![giphy](https://github.com/muhamed-hassan/green-telecom-interface/assets/17825804/73deddbe-1322-4e65-ad29-ed4b9504550f)
 
 It's nice to educate yourself a bit regarding [**`Telecommunications`**](https://en.wikipedia.org/wiki/Telecommunications).
