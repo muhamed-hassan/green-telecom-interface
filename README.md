@@ -10,7 +10,7 @@
 
 It's nice to educate yourself a bit regarding [**`Telecommunications`**](https://en.wikipedia.org/wiki/Telecommunications).
 
-Then, WTF is this [**shit 💩**](https://en.wikipedia.org/wiki/List_of_telephone_operating_companies) made via ignorants global terrorsists ???? [Why the fuck being thieves as private sector ???](https://www.youtube.com/watch?v=js7TxmgBCuA)
+Then, WTF is this [**shit 💩**](https://en.wikipedia.org/wiki/List_of_telephone_operating_companies) made via [ignorants global terrorsists](https://www.youtube.com/watch?v=zQLcC43-aFs) ???? [Why the fuck being thieves as private sector ???](https://www.youtube.com/watch?v=js7TxmgBCuA)
 
 Supposed green 🌍 ✅ 💯 model: **`ONE telecomunication organization per country`**
 
